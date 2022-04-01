@@ -1,1 +1,1 @@
-current diractory content
+school data
